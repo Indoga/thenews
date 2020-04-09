@@ -1,2 +1,3 @@
 # thenews
-The News 💩
+Bambang dwi cahyono
+
