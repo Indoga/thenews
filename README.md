@@ -1,2 +1,0 @@
-# thenews
-The News 💩
